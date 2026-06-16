@@ -6,7 +6,7 @@
 kaz or strider hi thats me, im 19, im an esfp sx/so 7w6 749 (so7 sx4 sx9) n im an omnivert, IDGAF if u cant have instincts in ur tritype its js typology grow up. 
   <p align= "center"
 
-im dry asf lmfaoo sorry maybe if we become friends.  lool
+im dry asf lmfaoo sorry maybe if we become friends.  lool, n i have bpd (unmedicated) so dont int if u dont fw that
   <p align= "center"
     
 my [byi](https://rentry.co/sea4)
